@@ -1,3 +1,3 @@
 # Skolski raspored
 
-Valja ga napravit
+Valja ga napravit!
